@@ -9,7 +9,8 @@ Hi! 👋🏼 I'm Dennis (he/him), based in the Netherlands. I'm an energetic and
 - Health. I actively work out and try what food works best for my body. As a result, I'm feeling stronger, more focused and I sleep better. Tips are always welcome!
 - Trust. I believe that strong relationships, both personal and at work, can only be built when there's 100% mutual trust and honesty. I will tell you when I feel that's not the case.
 - Transparency. I share my thoughts publicly and with good intentions, as well as product roadmaps or things I'm working on. I hope this helps others to better understand where I'm coming from or what I'm working on.
-- Listen. We tend to interrupt each other during conversations and not _actually_ listen. I will carefully listen to you and actively take notes when it's a lot of information to process.
+- Listening. We tend to interrupt each other during conversations and not _actually_ listen. I will carefully listen to you and actively take notes when it's a lot of information to process.
+- Inclusivity. I enjoy working with people from different backgrounds and treating everyone fairly and equally. I will also speak up when I'm in a situation where discrimination or exclusion of any type is present.
 - Optimism. Even when I'm having a bad day, I choose to look up and realize that the glass is always half full. There's already more than enough negativity in this world, don't you think?
 
 ## Dennis in communication
